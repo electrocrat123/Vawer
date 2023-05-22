@@ -11,4 +11,4 @@ Nice to meet you guys
 nenu endhuku thinali???
 
 
-hi bro yerri
+hi bro yerri yua
